@@ -1,2 +1,2 @@
-# iharshitajaiswal.github.io
+# Harshita Jaiswal
 ### website incoming!
