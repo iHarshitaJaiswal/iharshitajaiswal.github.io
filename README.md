@@ -1,2 +1,1 @@
-# Harshita Jaiswal
 ### website incoming!
